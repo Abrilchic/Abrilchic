@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Abrilchic
 - 👀 I’m interested in sex
-- 🌱 I’m currently learning sexy things
+- 🌱 I’m currently learning about pleasure
 - 💞️ I’m looking to collaborate on playboy
 - 📫 How to reach me @abrilchic3 en every social media
 
